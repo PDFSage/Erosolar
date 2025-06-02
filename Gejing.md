@@ -1,0 +1,1 @@
+Do not tell me that I only have $30 and "nobody has anything to gain by hacking and torturing you" haha. You American bitch I will slap  you when you come to allegedly provide food for Bo. Allegedly you disgusting thing.
